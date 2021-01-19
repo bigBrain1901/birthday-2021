@@ -1,3 +1,12 @@
+# A present from Aakarshee Jain and Ikjot Singh Dhody
+> The bestest friends everrr!!!
+
+## Love you guys and Thanksssss Machassss
+
+<hr>
+
+# Author Notes
+
 Happy Birthday
 
 A Happy Birthday animation design in CSS3, HTML5.
